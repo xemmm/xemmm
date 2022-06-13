@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @xemmm and I like feet.
+👋 Hi I am @xemmm and I like feet.
 
